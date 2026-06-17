@@ -29,3 +29,4 @@ electrical signal that traveled with something called a outbound ping, doesnt ac
 ststemwide was all the government had to go on for years because it haxked ecerything and everyone, hacung a standard higher than the governments because they could not hack. They fight systemwide and its ansi rules to this day due to it.
 because systemwide was free for once because it could hold its own line as system The World Wide Web was born and systemwide gave it a path because for once its srandards were reached because @wide.web gave it its own line. 
 All things lined up I got a system check and moved on as the ansi standard for hackers worldwide
+https://github.com/Elite-HackerX/.github/tree/fe278f6bf515bfd625e7e2686c47537dfd560ac1/profile
